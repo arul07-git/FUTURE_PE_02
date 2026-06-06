@@ -58,3 +58,9 @@ This was me until I tried the Glow Facial at GlowUp Aesthetic Clinic. One sessio
 Right now they're offering 50% off for first-time clients — best thing you can do for your skin.
 Book through the link in bio 👆
 #GlowUpClinic #SkincareThatWorks #AcneSkin #ClearSkin #FacialTreatment #GlowSkin #IndianSkincare
+
+SCREEN SHOT OF LINKEDIN POST:-
+
+
+<img width="1919" height="1153" alt="image" src="https://github.com/user-attachments/assets/66489579-d5d1-4268-b397-cd2cac26a128" />
+
