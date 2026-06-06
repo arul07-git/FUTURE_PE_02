@@ -66,9 +66,6 @@ SCREEN SHOT OF CLUADE:-
 <img width="806" height="892" alt="Screenshot 2026-06-06 180947" src="https://github.com/user-attachments/assets/cfb87fd1-25eb-4a2c-8cc1-27fa6e51c824" />
 
 
-<img width="356" height="1280" alt="image" src="https://github.com/user-attachments/assets/1121e5d3-856d-466a-922c-4928c2d562e8" />
-
-
 
 SCREEN SHOT OF LINKEDIN POST:-
 
