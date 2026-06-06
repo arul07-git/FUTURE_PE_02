@@ -61,7 +61,8 @@ Book through the link in bio 👆
 
 SCREEN SHOT OF CLUADE:-
 
-<img width="356" height="1280" alt="image" src="https://github.com/user-attachments/assets/12f6c280-076d-43ca-8399-7a82e444890d" />
+<img width="356" height="1280" alt="image" src="https://github.com/user-attachments/assets/1121e5d3-856d-466a-922c-4928c2d562e8" />
+
 
 
 SCREEN SHOT OF LINKEDIN POST:-
