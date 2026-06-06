@@ -60,6 +60,11 @@ Book through the link in bio 👆
 #GlowUpClinic #SkincareThatWorks #AcneSkin #ClearSkin #FacialTreatment #GlowSkin #IndianSkincare
 
 SCREEN SHOT OF CLUADE:-
+<img width="900" height="804" alt="Screenshot 2026-06-06 180535" src="https://github.com/user-attachments/assets/76fafeb6-4f49-47c9-90e9-2efcca972346" />
+<img width="905" height="701" alt="Screenshot 2026-06-06 180806" src="https://github.com/user-attachments/assets/7a327aaa-215d-47fa-b8e7-b3a13043940b" />
+<img width="892" height="730" alt="Screenshot 2026-06-06 180816" src="https://github.com/user-attachments/assets/2669d1ed-07cc-468d-96b0-4b06bced595b" />
+<img width="806" height="892" alt="Screenshot 2026-06-06 180947" src="https://github.com/user-attachments/assets/cfb87fd1-25eb-4a2c-8cc1-27fa6e51c824" />
+
 
 <img width="356" height="1280" alt="image" src="https://github.com/user-attachments/assets/1121e5d3-856d-466a-922c-4928c2d562e8" />
 
